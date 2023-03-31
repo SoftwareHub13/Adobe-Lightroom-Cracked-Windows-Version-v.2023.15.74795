@@ -1,0 +1,1 @@
+# Adobe-Lightroom-Cracked-Windows-Version-v.2023.15.74795
